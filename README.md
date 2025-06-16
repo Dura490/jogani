@@ -1,2 +1,11 @@
 # jogani
 Chetan Bhagat Launches Book On Sustainability -World Of Basalt Reinforcement By Mahesh Kumar Jogani
+Mumbai witnessed a convergence of literature, engineering, and sustainability as acclaimed author and IIT alumnus Chetan Bhagat unveiled "World of Basalt Reinforcement" by Mahesh Kumar Jogani at a star-studded event. The launch underscored the growing importance of sustainable materials in India’s rapidly urbanising landscape, with Bhagat highlighting the book’s timely relevance: “Sustainable materials are not a luxury- they are the need of the hour,” he remarked, commending Jogani’s expertise in structural durability and crack control.
+
+Jogani’s book introduces readers to basalt fiber, a cutting-edge reinforcement material derived from volcanic rock. Praised for its strength, corrosion resistance, and minimal environmental impact, basalt fibre is emerging as a viable alternative to traditional steel and glass fibres. The book bridges the gap between nature and technology, offering accessible explanations and real-world studies spanning sectors from aerospace to automobile-making it an essential guide for students, engineers, and innovators alike.
+
+With over two decades of experience, Mahesh Kumar Jogani is a well-known research engineer and techno-entrepreneur, known for his patents and innovations in composites and reinforcement technologies. His work consistently champions durability, efficiency, and environmental stewardship, with a strong focus on practical solutions for environmentally friendly green construction.
+
+Mahesh Kumar Jogani’s philosophy is clear: “Innovation doesn’t have to come at the cost of nature. With basalt, we can have both performance and sustainability.” As infrastructure needs soar and the climate crisis intensifies, "World of Basalt Reinforcement" arrives as both an introductory resource and a call to action, urging a new generation of engineers, material scientists and policymakers to see innovation and sustainability as partners in progress. As renowned Indian Author Chetan Bhagat aptly concluded, “This isn’t just a book for sustainability -it’s a message for anyone who believes in a smarter, greener future.
+
+For more information on this subject, please visit www.joganireinforcement.com
